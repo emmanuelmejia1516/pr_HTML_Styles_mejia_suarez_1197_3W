@@ -27,3 +27,8 @@
 ![image](https://github.com/user-attachments/assets/f53c09b8-d0ff-4166-b35e-553fec3a4c4b)
 # resultado:
 ![image](https://github.com/user-attachments/assets/5ca943b2-72e9-4ef5-8f10-d0922945a52a)
+# Elementos de formato HTML
+![image](https://github.com/user-attachments/assets/339fc0a2-136c-4269-baeb-d92ad847bbbd)
+# resultado:
+![image](https://github.com/user-attachments/assets/31ba652e-aae4-4aad-a664-06816ba5b1a6)
+
