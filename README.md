@@ -31,4 +31,27 @@
 ![image](https://github.com/user-attachments/assets/339fc0a2-136c-4269-baeb-d92ad847bbbd)
 # resultado:
 ![image](https://github.com/user-attachments/assets/31ba652e-aae4-4aad-a664-06816ba5b1a6)
-
+# ejemplo 9
+![image](https://github.com/user-attachments/assets/689f9f5e-ce0f-4e38-9604-4e6c9c59e22f) ![image](https://github.com/user-attachments/assets/7ad7aec2-8a72-4d6c-9dde-7e13f536b388) ![image](https://github.com/user-attachments/assets/ed5b18a6-2421-4ea4-8bdf-4373448261a2)
+# resultado:
+![image](https://github.com/user-attachments/assets/637c4985-b736-44a9-a990-a1c2ad36f072)
+# ejemplo 10
+![image](https://github.com/user-attachments/assets/0eea579d-1752-46e6-9d81-a7125418f04e)
+# resultado:
+![image](https://github.com/user-attachments/assets/6bb5fac7-1bff-4318-8fcd-ca980441209c)
+# ejemplo 11 
+![image](https://github.com/user-attachments/assets/7252d42e-6562-4c0a-b033-ceab9108ce86)
+# resultado:
+![image](https://github.com/user-attachments/assets/698beaee-cd63-44d9-8519-548f8d5ea213)
+# ejemplo 12
+![image](https://github.com/user-attachments/assets/8f6dbc4c-b2c0-4241-b602-029da515947a)
+# resultado:
+![image](https://github.com/user-attachments/assets/104ae963-3654-47f2-8d21-91ab896a6d59)
+# ejemplo 13
+![image](https://github.com/user-attachments/assets/d3c1efbe-715d-4020-a426-d76052012517)
+# resultado:
+![image](https://github.com/user-attachments/assets/236de212-c572-47e0-b6ff-4101f1e2e18f)
+# ejemplo 14
+![image](https://github.com/user-attachments/assets/0bd318ae-59bc-44a4-ad10-be754e61846d)
+# resultado:
+![image](https://github.com/user-attachments/assets/ae6671da-1919-4953-b24c-41cbf24938b0)
